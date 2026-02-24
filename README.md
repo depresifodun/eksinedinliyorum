@@ -1,0 +1,2 @@
+# eksinedinliyorum
+ne dinliyorum özelliği
